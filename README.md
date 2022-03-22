@@ -8,7 +8,7 @@ ENGLISH VERSION BELOW THE FRENCH ONE !
 
 - 👯 Je suis ouverte aux collaborations me permettant d'apporter mon expertise sur la partie front et l'accessibilité d'un site ou d'une application, si vous avez des questions, n'hésitez pas !
 
-- 🤔 J'accepte toute aide que je peux avoir pour la partie back de mes projets, ce n'est pas la partie où je suis le plus à l'aide (idem pour le déploiement d'un site ou d'une application).
+- 🤔 J'accepte toute aide que je peux avoir pour la partie back de mes projets, ce n'est pas la partie où je suis le plus à l'aise (idem pour le déploiement d'un site ou d'une application).
 
 - 💬 A propos de moi : Je suis une femme, en couple, sans enfant, gameuse, bricoleuse, geek, randonneuse et jardinière à ses heures perdues.
 
