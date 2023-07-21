@@ -12,7 +12,7 @@ ENGLISH VERSION BELOW THE FRENCH ONE !
 
 - 💬 A propos de moi : Je suis une femme, en couple, sans enfant, gameuse, bricoleuse, geek, randonneuse et jardinière à ses heures perdues.
 
-- 📫 Pour me contacter : llamande.pro@gmail.com
+- 📫 Pour me contacter : laure.lamande@gmail.com
 
 - 😄 Pronom : Elle ;)
 
@@ -32,7 +32,7 @@ ENGLISH VERSION BELOW THE FRENCH ONE !
 
 - 💬 About me : I am a woman, happily in a relationship, childfree, gamer, handywoman, geek, hiker and gardener during free time.
 
-- 📫 How to reach me: llamande.pro@gmail.com
+- 📫 How to reach me: laure.lamande@gmail.com
 
 - 😄 Pronouns: She/Her ;)
 
